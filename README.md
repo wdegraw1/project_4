@@ -4,7 +4,7 @@
 
 For this project, you will be doing work that focuses on social impact.
 
-The prompts are there to help jump-start your ideation process. If you would like to change or combine prompts, that's fine! If you want to find your own idea, even better. **Please consult your instructors for final approval before getting started. (Approved) topic selections are due by EOD on Monday, February 9th.**  
+The prompts are there to help jump-start your ideation process. If you would like to change or combine prompts, that's fine! If you want to find your own idea, even better. **Please consult your instructors for final approval before getting started. Your topic selection is due for approval by EOD Monday, February 9th.**  
 
 Remember to start with a good problem statement!
 
